@@ -13,3 +13,9 @@ $\color{#184E77}{\text{꒰ྀི১}}$
   <a href="https://gutspilled.straw.page/">Straw</a>
 </p>
 
+<table align="right"><th>
+<details><summary>Test</summary>
+  <br>Test
+  <br>I fudging hate coding
+</details>
+
