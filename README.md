@@ -10,6 +10,6 @@ $\color{#184E77}{\text{꒰ྀི১}}$
 
 <p align=center>
  <a href="https://friedbrain.atabook.org/">新</a>
+  <a href="https://gutspilled.straw.page/">Straw</a>
 </p>
-<a href="https://gutspilled.straw.page/">Straw</a>
 
