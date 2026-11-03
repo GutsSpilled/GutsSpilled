@@ -1,1 +1,2 @@
-<img src="https://img.sanishtech.com/u/2b2ec0831c09360f04da22d38b245fc6.gif" alt="1000000261" width="1330" height="748">
+
+<img src="https://img.sanishtech.com/u/b31f43f34fd40279a84ce1886bdd752d.png" alt="1000000275" width="500"> 
