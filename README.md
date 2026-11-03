@@ -19,4 +19,3 @@ $\color{#184E77}{\text{꒰ྀི১}}$
 <details><summary>𝓑𝔂𝓲</summary>
   <br> I have been burnt out from friendships recently, i will be cautious towards you and won't friend you right away.
   <br> Don't cling to me, clingy people annoy me and make me feel anxious. i hate people ignoring me without any explanations, if u hate me, LET me KNOW. <br> i dont like people who make fun of fandoms, any non problematic fandom, idc if u hate Hazbin hotel or HB, do not mock these people infront of me. </details>
-
