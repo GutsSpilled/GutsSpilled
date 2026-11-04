@@ -18,8 +18,8 @@ $\color{#184E77}{\text{꒰ྀི১}}$
 
 <table align="right"><th>
 <details><summary>𝓑𝔂𝓲</summary>
-  <br> $\color{#184E77}{\text{I have been burnt out from friendships recently, i will be cautious towards you and won't friend you right away.
-  <br> Don't cling to me, clingy people annoy me and make me feel anxious. i hate people ignoring me without any explanations, if u hate me, LET me KNOW. <br> i dont like people who make fun of fandoms, any non problematic fandom, idc if u hate Hazbin hotel or HB, do not mock these people infront of me.}}$ </details></th>
+  <br> $\color{#184E77}{\text{I have been burnt out from friendships recently, i will be cautious towards you and won't friend you right away.}}$
+  <br> <br> $\color{#184E77}{\text{Please don't cling to me, clingy people annoy me and make me feel anxious.}}$ <br> <br> $\color{#184E77}{\text{i hate people ignoring me without any explanations, if u hate me, LET me KNOW.}}$ <br> <br> $\color{#184E77}{\text{i don't like people who make fun of fandoms, any non problematic fandom, idc if u hate Hazbin hotel or HB, do not mock these people in front of me.}}$ </details></th>
 
   <p dir=auto>
 <table align="left"><th>
