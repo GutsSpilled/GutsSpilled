@@ -7,7 +7,7 @@ $\color{#184E77}{\text{꒰ྀི১}}$
 </p>
 
 <p align=center>
-  <img src="https://img.sanishtech.com/u/3bce607c7adf4af9095c5c6c46cf7d2c.png" alt="1000000275" width="500"> 
+  <img src="https://img.sanishtech.com/u/25cdb4073376d16099e9739f574cbff3.png" alt="1000000275" width="500"> 
 </p>
 <table align="right"><th>
 <details><summary>My links</summary>
